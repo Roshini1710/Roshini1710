@@ -1,5 +1,5 @@
 - This is Roshini✨
-- persuing Btech computer science and business systems👩‍🎓
+- pursuing Btech computer science and business systems👩‍🎓
 - love to learn and explore new stuff🧠
 - just hit : 9363396119 📥
 - interested in shaping myself 1️⃣

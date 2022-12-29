@@ -1,7 +1,6 @@
 - This is Roshini✨
 - pursuing Btech computer science and business systems👩‍🎓
 - love to learn and explore new stuff🧠
-- just hit : 9363396119 📥
 - interested in shaping myself 1️⃣
 - good at programming languages like python, c and Java.🖥️
 - self confidence level 💯
